@@ -1,6 +1,6 @@
 👋 Hi, I’m @WidyaDharma1
 -
-I'm interest being a website developers. Basicly I'm just a beginner to start how to code and I Wish that I can learn more faster to update my profile!
+I'm interest being a website developers. Basically I'm just a beginner to start how to code and I Wish that I can learn more faster to update my profile!
 -
 see you soon!
 
